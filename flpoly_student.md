@@ -1,4 +1,4 @@
-## Jikhan Jeong
+## Steve Coz
 
 ### Term Year 2022 Fall
 
